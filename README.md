@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @pandugotfriends
 - 🐼 they/them
-- 👀 I’m interested in ...idk??
-- 🌱 I’m currently learning how to stay alive
 - 📫 Discord: @pandugotfriends
 
 <!---
